@@ -1,0 +1,1 @@
+# azerbaijan-tour-animated-image-slider
